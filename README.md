@@ -17,4 +17,4 @@
 ---
 
 ### 📫 Contacto
-- 💼 **LinkedIn:** [Tu Perfil](https://www.linkedin.com)
+- 💼 **LinkedIn:** www.linkedin.com/in/jurgen-rico-b98a17431
